@@ -1,7 +1,7 @@
 # Most-Relevant-Site-In-Nigeria
-here are the most relevant sites in nigeria
+here are the best football prediction site
 Legit.ng,
 Daily post,
 punchng.
 premiumtimesng,
-<a href="https://yawanews.ng/">YawaNews</a>
+<a href="https://surebetpick.com/">free football predictions</a>
